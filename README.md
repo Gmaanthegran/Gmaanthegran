@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding And Gaming
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate on nothing yet unless it's a game repository
-- 📫 How to reach me steelegrafton1@gmail.com
+- 📫 How to reach me: Don't
 - 😄 Pronouns: He, Him
 - ⚡ Fun fact: I might know how to hack
 
